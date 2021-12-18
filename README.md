@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IwonaWasilewska and I'm a freshman year computer science student, doing my homework at the moment.
+- 👀 I’m interested in game design. I took up computer science to pursue a career in this field.
+- 🌱 I’m currently learning... lots of stuff, really. Like any freshman (freshwoman? Is freshwoman a thing yet?).
+- 💞️ I’m a cultural studies graduate, cultural anthropology will always have a special place in my heart.
+- 📫 Reach me at iwona.wasilewska@pm.me
